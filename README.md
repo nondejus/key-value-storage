@@ -1,1 +1,0 @@
-# wat-is-het-nog-waard-om-in-een-stad-te-zijn-waar-je-niet-kunt-wonen
